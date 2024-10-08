@@ -1,5 +1,5 @@
 # xslot
-![image](https://github.com/user-attachments/assets/957ec46b-bb3e-466a-be22-1cbd12d70ac6) <a href="https://www.kisa.link/EIkhv" ></a>
+![image](https://github.com/user-attachments/assets/957ec46b-bb3e-466a-be22-1cbd12d70ac6) <a href="https://www.kisa.link/EIkhv" >
 Xslot Kısa Tanıtımı
 Xslot Giriş, Türkiye'deki oyunculara geniş bir yelpazede kumar oyunları sunan önde gelen online casinolardan biridir. Modern oyuncuların ihtiyaçlarını karşılamak amacıyla kurulan Xslot, yüksek güvenlik seviyesi, güvenilirlik ve çeşitli oyun seçenekleri sayesinde hızla popülerlik kazanmıştır.
 
